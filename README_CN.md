@@ -3,7 +3,7 @@
 
 ## 概述
 
-
+![](/img/ihatebug.jpg)
 
 ## 重温
 
